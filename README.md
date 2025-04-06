@@ -26,4 +26,6 @@ The paper examines the content of the entire pre-Mohács collection of the Hunga
 
 </ul>
 
+## Contact
+ For any questions or further discussions, please contact Davor Salihović at [davor.salihovic@gmail.com] or [davor.salihovic@uantwerpen.be].
 
