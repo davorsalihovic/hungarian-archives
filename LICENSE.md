@@ -1,2 +1,2 @@
 ## License
- Quantitative Analysis of the Pre-Mohács Collection at the Hungarian National Archives: Epistemic Implications and Research Potential © 2023 by Davor Salihovic is licensed under CC BY-NC-SA 4.0
+ Quantitative Analysis of the Pre-Mohács Collection at the Hungarian National Archives: Epistemic Implications and Research Potential © 2025 by Davor Salihovic is licensed under CC BY-NC-SA 4.0
